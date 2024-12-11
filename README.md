@@ -8,4 +8,4 @@
 - 🔭 I’m currently working on: not being bad at programming.
 - 🤔 I’m looking for help with pretty much anything.
 - 💬 Ask me about drinking beer!
-- ⚡ Fun fact: I can fly a jet but can't program to save my life!
+- ⚡ Fun fact: I can fly a jet but I sure can't program one to fly.
